@@ -1,1 +1,1 @@
-# mindcorrupted.github.io
+# mindcorrupted.com
