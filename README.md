@@ -1,1 +1,1 @@
-# gifari.github.io
+# mindcorrupted.github.io
