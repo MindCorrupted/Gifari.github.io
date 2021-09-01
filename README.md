@@ -1,1 +1,1 @@
-# Gifari.github.io
+# gifari.github.io
